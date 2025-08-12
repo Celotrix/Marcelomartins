@@ -27,3 +27,14 @@ Acompanhamento (follow up), Negociação e mais 1 competência
 ### *Analista de compras*
 *jan de 2023 - mai de 2023* · *5 mesesDe jan de 2023 até mai de 2023 · 5 meses*
 Analisa a compra de materiais, equipamentos, matérias-primas e serviços, realiza cotação e negociação com fornecedores, emite pedidos e acompanha o fluxo de entrega para cumprimento de todas as condições negociadas.Analisa a compra de materiais, equipamentos, matérias-primas e serviços, realiza cotação e negociação com fornecedores, emite pedidos e acompanha o fluxo de entrega para cumprimento de todas as condições negociadas.
+
+
+## Meus Projetos 
+
+- Aqui estão alguns dos meu projetos e exercícios desenvolvidos ao longo do curso:
+
+🔶 Projeto 1 - Em desenvolvimento...
+
+
+
+
